@@ -29,5 +29,7 @@ It is so easy to forget God' perspective of our life; to forget that we are love
 
 You, dear child of God, are beloved of God. You are more than what you have, what you do, or what people say about you, because you have been adopted into the family of God and have a Father who delights in you just as he does His Son. The beauty and depth of delight in your story is more than you know.
 May you live today resting in the love and delight of your Father.
+
 -
+
 This is a wholesale ripoff of Henri Nouwen's "[Life of the Beloved](https://www.youtube.com/watch?v=v8U4V4aaNWk)" sermon. You should give it a listen.
