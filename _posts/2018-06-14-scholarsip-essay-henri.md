@@ -4,7 +4,7 @@ title: "Molly Clark Kenzler Scholarship Essay"
 date: 2018-06-30
 ---
 
-We are surrounded by a cacophony of voices demanding that we produce more, weigh less, get low, and stay high. Of all the people who are berated by the ways of the world, pastors may have it the worst. Not only are they subject to the everyday voices of our culture, they are also barraged by companies promising them the key to better sermons, bigger crowds, and increased giving. These voices masquerade as ways to “grow the kingdom”, yet appeal to man’s lust for power and control. 
+We are surrounded by a cacophony of voices demanding that we produce more, weigh less, get low, and stay high. Of all the people who are berated by the ways of the world, pastors may have it the worst. Not only are they subject to the everyday voices of our culture, they are also barraged by companies promising them the key to better sermons, bigger crowds, and increased giving. These voices masquerade as ways to “grow the kingdom”, yet appeal to man’s lust for power and control.
 
 The past five years I have worked for a church, where I have witnessed first hand that pastors are some of the loneliest people in the world. Surrounded by people who look up to them and expect even more, pastors often feel that if they were themselves, they would lose their livelihood. In an effort to satiate the pressures of their elder boards and congregations, pastors often resort to indicators of success that lure them down the path of power and control.  Increases in attendance and giving serve as smokescreens, hiding the insecurity of the pastor and allowing the war Evil wages on pastor’s hearts to continue.
 
