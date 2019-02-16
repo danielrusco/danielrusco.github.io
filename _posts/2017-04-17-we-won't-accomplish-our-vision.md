@@ -1,6 +1,6 @@
 ---
 layout: post
-title: "We won't accomplish our vision, and here's why."
+title: "We won't accomplish our vision, and here's why"
 date: 2017-04-17
 ---
 

@@ -1,6 +1,6 @@
 ---
 layout: post
-title: "How to assume the best."
+title: "How to assume the best"
 date: 2017-11-13
 ---
 

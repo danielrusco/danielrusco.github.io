@@ -1,6 +1,6 @@
 ---
 layout: post
-title: "Best practices for iPhone addicts."
+title: "Best practices for iPhone addicts"
 date: 2017-03-17
 ---
 
